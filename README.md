@@ -1,2 +1,3 @@
 # hello-world
 po-svoemu otkisayu
+Nu zdarova timati petushara galimaya. Nu sho j ty delaesh...
